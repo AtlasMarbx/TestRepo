@@ -1,1 +1,0 @@
-Hi, nice to meet you, thank you and goodbye.
